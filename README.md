@@ -3,7 +3,7 @@
 
 > **Current Version:** [June 2020](/coldbacon.pdf)
 
-> **Status:** Revise & Resubmit
+> **Status:** Forthcoming, **_Public Choice_**
 
 > **Presentations:** 
 > * SEA 90th Annual Meeting - [Programme](https://www.southerneconomic.org/session-details/?conferenceId=6&participantId=20528)
